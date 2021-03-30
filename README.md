@@ -1,1 +1,0 @@
-# Recycling4everyone
